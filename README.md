@@ -1,0 +1,1 @@
+# Tematicke-slova-v-predvolebnej-kampani-na-Facebooku
